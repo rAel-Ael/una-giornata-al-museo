@@ -1,0 +1,1 @@
+una breve descrizione della giornata passata al museo con foto di quadri e statue annesse.
